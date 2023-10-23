@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @okothotieno
+- 👀 Aspiring CyberSecurity Operations Specialist
